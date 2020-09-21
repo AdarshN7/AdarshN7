@@ -1,4 +1,4 @@
-## Hi there 👋, Adarsh is here 😊.
+## Hi there👋, Adarsh is here😊.
 #### I'm currently Learning 👨‍💻👨‍💻.
 
 <img src="https://raw.githubusercontent.com/AdarshN7/me1/master/assets/img/Screenshot%20(147).png">
